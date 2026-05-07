@@ -1,4 +1,4 @@
-
+plants vs brainrots Scripts no-ban is the best plants vs brainrots Script, featuring no cooldown and teleport. Safe and powerful for all your needs.
 
 
 
